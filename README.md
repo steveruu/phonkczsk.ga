@@ -1,0 +1,2 @@
+# phonkczsk.ga
+JO JDEM TO PROSTĚ PŘEDĚLAT, PROTOŽE MAROŠ SI ŘEKL ŽE VŠECHNO BUDE JINAK!!!!!!!!!!!!
