@@ -4,4 +4,5 @@ PROČ TAKY NE ŽEJO!!!!!!
 
 # phonkczsk.ga
 * takzvaně další github pages hosting  
-* bootstrapu mmmmmmmmmmmm
+* bootstrap miluji bootstrap  
+* bootstrap bootstrap bootstrap bootstrap bootstrap bootstrap bootstrap bootstrap 
